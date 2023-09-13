@@ -9,8 +9,4 @@
 🌟 _Namoro há mais de um 1 ano com o Dandan 💍❤️_
 🌟 _Já viajei para a Inglaterra, França e Espanha ✈️🌍;_
 🌟 _Eu quero e vou ter um futuro brilhante 🌈_
-
-
-
-
 ![](https://media.tenor.com/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
